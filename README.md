@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hananmashal07@gmail.com**
 
-- 📄 Know about my experiences (https://ziply.pk/hananmashal_resume)
+- 📄 Know about my experiences (https://docs.google.com/document/d/1cOKNRy7zhPmKXY7znBHTAWZ-YwoQ4a2p/edit?usp=drivesdk&ouid=100585899628994041983&rtpof=true&sd=true)
 
 - ⚡ Fun fact **I grew a digital brand, BakeVision, to over 134k+ views.**
 
